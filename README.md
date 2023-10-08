@@ -1,1 +1,1 @@
-# Olá! eu sou o igor maciel 🖐️
+# Olá! Eu sou o igor maciel 🖐️
